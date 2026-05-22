@@ -2,7 +2,7 @@
 ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎
 
 ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ 
-<img src="[https://file.garden/Zy7nsVKnFHAuCMhW/stamps/GrBlPur/g7](https://file.garden/Zy7nsVKnFHAuCMhW/buttons/green/green13)"/>
+<img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/green/green13"/>
 <p align="center"> w2i encouraged.  c+h OK.  sign  atabook<p align="center">
 <p align="center">
 
